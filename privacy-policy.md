@@ -33,4 +33,4 @@ We may update our Privacy Policy from time to time. We recommend reviewing this 
 
 ### Contact Us
 If you have any questions or suggestions regarding our Privacy Policy, please do not hesitate to contact us at the following email address:
-Email: *[xxx@email.com]*
+Email: *EasyVoc23@gmail.com*
